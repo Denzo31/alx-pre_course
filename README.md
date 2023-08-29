@@ -1,1 +1,1 @@
-Born ready
+Denzo na vibe
